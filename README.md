@@ -37,4 +37,4 @@ https://t.me/SariiRooti
 | **Brutal Spam** |[✔️](https://github.com/AmmarrBN) |
 ---------
 
-<li><code>Get<a href="https://karyawan.co.id/Ylcdv5zjf">Apikey</a></code></li>
+<li><code>Get<a href="https://semawur.com/HBQtq0vUx">Apikey</a></code></li>
