@@ -37,4 +37,8 @@ https://t.me/SariiRooti
 | **Brutal Spam** |[✔️](https://github.com/AmmarrBN) |
 ---------
 
+## ```Thanks For 🔥```
+[![sanzzxd](https://github.com/sanzzxd.png?size=100)](https://github.com/sanzzxd)
+## SanzzXD
+
 <li><code>Get<a href="https://semawur.com/HBQtq0vUx">Apikey</a></code></li>
