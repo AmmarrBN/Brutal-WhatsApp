@@ -5,3 +5,4 @@ rich
 colorama
 pyfiglet
 tqdm 
+inquirer
