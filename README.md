@@ -35,6 +35,7 @@ https://t.me/SariiRooti
 | Kelebihan | Check |
 |--------|--------|
 | **Brutal Spam** |[✔️](https://github.com/AmmarrBN) |
+| **Massive Spam** |[✔️](https://github.com/AmmarrBN) |
 ---------
 
 ## ```Thanks For 🔥```
